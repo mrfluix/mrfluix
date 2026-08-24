@@ -3,6 +3,8 @@ hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 most formally known as cappy but you may call me candie <br>
 read my pronouns page omg and maybe my strawpage too! <br>
 
+I SWEAR IM NICE!! don't be shy to approach me ESPECIALLY if i'm in docks, i match the energy of whoever i'm talking with <br>
+
   <details>
   <summary> $\color{#D23E67FF}\textsf{byi}$ </summary>
 jsyk i'm still a student, i play on and off because of that. also im an offline mode warrior <br>
