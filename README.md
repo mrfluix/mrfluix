@@ -24,7 +24,8 @@ im always open for frqs, if we've sspoken before!! i just highkey recommend you 
  <details>
   <summary> $\color{#D23E67FF}\textsf{etc otther random stuff that is pretty unimportant}$ </summary>
 this is likea 2.0 of the one on my og github (@mir4-hq) <br>
-im so chronically offline its almost unbelievable. ANyways all i do is rp at docks omg #chud
+im so chronically offline its almost unbelievable. ANyways all i do is rp at docks omg #chud <br>
+sorry i dont check atabook super often and if i do i'm too terrified to respond back desspite it being my own domain 
    
 <img width="690" height="85" alt="Screenshot 2026-08-23 231452" src="https://github.com/user-attachments/assets/fb0e1ea8-fff9-409e-a337-f61ce3b62c10" /> <br>
 real description of one of my friendss about me oh ok 😂 <br>
