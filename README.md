@@ -1,3 +1,4 @@
+
 hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 
 most formally known as cappy but you may call me candie <br>
@@ -33,8 +34,9 @@ real description of one of my friendss about me oh ok 😂 <br>
 <br>
    am i goated at ssubspace or what  <br>
 
-<img width="200" height="200" alt="Screenshot 2026-08-21 202004" src="https://github.com/user-attachments/assets/a5ab7bce-465f-4b25-bad9-60e260e98103" />  <img width="200" height="200" alt="Screenshot 2026-08-21 202044" src="https://github.com/user-attachments/assets/b6f296f4-7da2-41ab-8834-622c976a4d6f" />
+<img width="200" height="200" alt="Screenshot 2026-08-21 202004" src="https://github.com/user-attachments/assets/a5ab7bce-465f-4b25-bad9-60e260e98103" />  <img width="200" height="200" alt="Screenshot 2026-08-21 202044" src="https://github.com/user-attachments/assets/b6f296f4-7da2-41ab-8834-622c976a4d6f" /> <br>
 
+<img width="200" height="100" alt="Screenshot 2026-08-16 165154" src="https://github.com/user-attachments/assets/f2a72479-7628-4b84-b9ae-94128291248d" />
 
 <br>
 
