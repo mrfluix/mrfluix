@@ -2,7 +2,7 @@
 hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 
 most formally known as cappy but you may call me candie <br>
-read my pronouns page most of my IMPORTANT stuff are there! omg! and maybe my strawpage(not screenreader friendly soz) too! <br>
+read my pronouns page most of my BYF stuff are there! omg! and maybe my strawpage(not screenreader friendly soz) too! <br>
 
 I SWEAR IM NICE!! i neber bite! atleast not intentionally! don't be shy to approach me ESPECIALLY if i'm in docks, i match the energy of whoever i'm talking with <br>
 
