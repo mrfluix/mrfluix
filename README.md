@@ -7,6 +7,9 @@ I SWEAR IM NICE!! i neber bite! atleast not intentionally! don't be shy to appro
 
 huge cud comf btw :] <br>
 
+
+i follow back people in my friendslist ok even if we dont talk super often, it makes it easier to remember most of the time... <br>
+
   <details>
   <summary> $\color{#D23E67FF}\textsf{byi}$ </summary>
 jsyk i'm still a student, i play on and off because of that. also im an offline mode warrior <br>
