@@ -11,6 +11,8 @@
 
 <div align = center> 
 <img width="700" height="400" alt="HGPeyx5b0AE9rGx" src="https://github.com/user-attachments/assets/0ad2392e-04c4-4b8b-9641-84cbbba03e52" />
+<img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
+
 
 
 <div align = center> 
