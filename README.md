@@ -26,7 +26,7 @@ heavy wip omg
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
 
-<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/54dbed00-fd63-4372-8db7-5e2541d15c24" />
+<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/71241870-f00c-4595-af70-8d0864e63dde" />
 
 
 
