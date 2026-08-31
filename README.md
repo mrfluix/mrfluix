@@ -1,5 +1,31 @@
+<div align = center> 
+  <table>
+    <tr>
+      <td>  
+          
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9&repeat=false&width=435&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again.)](https://git.io/typing-svg)
+      </td>
+    </tr>
+  </table> 
+ </div>
 
-hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
+<div align = center> 
+<img width="700" height="400" alt="HGPeyx5b0AE9rGx" src="https://github.com/user-attachments/assets/0ad2392e-04c4-4b8b-9641-84cbbba03e52" />
+
+
+<div align = center> 
+
+$\color{#d066de}\textsf{An apple a day keeps the}$ $\color{#fff8db}\textsf{doctor}$ $\color{#d066de}\textsf{away. Shame all the apples are rotten by now.}$
+
+<img width="120" height="55" alt="image" src="https://github.com/user-attachments/assets/6e3d6ae1-bb35-4498-92f8-e6e69dc50be8" /> 
+IM NEVER FORGETTING THIS FUCKING SESSION
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
+
+ <details>
+  <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
+
+  hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 
 most formally known as cappy but you may call me candie <br>
 read my pronouns page most of my BYF stuff are there! omg! and maybe my strawpage(not screenreader friendly soz) too! <br>
@@ -49,4 +75,3 @@ my ocs might just be teh one thing keeping me from tweaking
 </details>
 
 the urge to make this decayed adn decrepit themed holy shit
- 
