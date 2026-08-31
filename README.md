@@ -17,8 +17,9 @@
 
 $\color{#d066de}\textsf{An apple a day keeps the}$ $\color{#fff8db}\textsf{doctor}$ $\color{#d066de}\textsf{away. Shame all the apples are rotten by now.}$
 
+<div align = center> 
+
 <img width="120" height="55" alt="image" src="https://github.com/user-attachments/assets/6e3d6ae1-bb35-4498-92f8-e6e69dc50be8" /> 
-IM NEVER FORGETTING THIS FUCKING SESSION
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
 
