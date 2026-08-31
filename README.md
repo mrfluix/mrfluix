@@ -10,6 +10,7 @@ huge cud comf btw :] <br>
 
 
 i follow back people in my friendslist ok even if we dont talk super often, it makes it easier to remember most of the time... <br>
+jsyk, i also dont check socials of who i'm inting with so #Lmk if i'm talking to someone problematic/c+hing, u get the gist. My friends will always be folowed in my ghub!!!!
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{byi}$ </summary>
