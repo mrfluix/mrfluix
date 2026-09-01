@@ -13,7 +13,17 @@ All four of us will be all right. <br>
 I'm not leaving you out of my sight.	” <br>
 — to Thomas, Session 6 <br>
 
-heavy w.i.p <br>
+ <details>
+  <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
+   <div align = center>
+<img width="180" height="119" alt="image" src="https://github.com/user-attachments/assets/0d90978f-82bf-4f50-ba5c-d8f8d00d9d5e" /> <br>
+<div align = right>
+I want to imagine that there was a better outcome. <br>
+There was one, right..? <br>
+Maybe i was just too blind to see it. <br> 
+./ic
+   
+ </details>
 
 [check my pronouns page thx (click me)](https://pronouns.cc/@cappytain)
       </td>
