@@ -19,13 +19,13 @@
 <div align = center>
   
 ㅤㅤㅤㅤ <br>
-“	ㅤㅤJust need to find Magic. <br>
-Stella wakes up. <br>
-All four of us will be all right. <br> 
-I'm not leaving you out of my sight.	ㅤㅤ” <br>
-ㅤㅤㅤ— to Thomas, Session 6 <br>
+$\color{#3e3466}\textsf{❝	ㅤㅤJust}$ $\color{#514875}\textsf{need}$ $\color{#655d85}\textsf{to}$ $\color{#787194}\textsf{find}$ $\color{#8b85a3}\textsf{Magic.}$ <br>
+$\color{#3e3466}\textsf{Stella}$ $\color{#514875}\textsf{wakes}$ $\color{#655d85}\textsf{up.}$ <br>
+$\color{#3e3466}\textsf{All four}$ $\color{#514875}\textsf{of us}$  $\color{#655d85}\textsf{will}$ $\color{#787194}\textsf{be}$  $\color{#8b85a3}\textsf{alright.}$ <br>
+$\color{#3e3466}\textsf{I'm not leaving}$  $\color{#514875}\textsf{you out}$ $\color{#655d85}\textsf{of}$ $\color{#787194}\textsf{my}$ $\color{#8b85a3}\textsf{sight.	ㅤㅤ❞}$ <br>
+$\color{#3e3466}\textsf{ㅤㅤㅤ— To}$ $\color{#514875}\textsf{Thomas,}$ $\color{#655d85}\textsf{Session}$ $\color{#8b85a3}\textsf{6.}$ <br>
 
-wip
+$\color{#8b85a3}\textsf{wip}$
 ㅤ
  <details>
   <summary> 
@@ -50,7 +50,7 @@ wip
 
 <img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
 
-
+$\color{#3e3466}\textsf{test}$ $\color{#514875}\textsf{test}$ $\color{#655d85}\textsf{test}$ $\color{#787194}\textsf{test}$ $\color{#8b85a3}\textsf{test}$
 
 <div align = center> 
 
