@@ -10,7 +10,8 @@
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9&repeat=false&width=435&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again.)](https://git.io/typing-svg)
         
 <div align = center>
-<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-2d69ee459a9278c4.png" /> <br>
+<img width="400" height="14" alt="image" src="https://github.com/user-attachments/assets/52881def-e34b-4fa0-868a-f02944f381e0" />
+
 ㅤㅤㅤㅤ <br>
 <img width="80" height="46" alt="tumblr_3bdca696c2115bd094b1ae4b2aa99b53_0ab6676e_100" src="https://github.com/user-attachments/assets/411da2b4-1afe-415d-b1fd-a5b92e315816" />ㅤㅤ<img width="80" height="46" alt="tumblr_08ea7fcf9d5551bca114183075481a42_de41f705_100" src="https://github.com/user-attachments/assets/04e78fa6-4323-41d3-837f-fde437721f23" />ㅤㅤ
 <img width="80" height="46" alt="tumblr_20a5d8cfd7eb95999f6c9677ff728904_65e8bbd3_100" src="https://github.com/user-attachments/assets/a034c4d5-d1c4-478a-8e93-0533096f5e35" />
