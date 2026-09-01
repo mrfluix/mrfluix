@@ -4,13 +4,23 @@
       <td>  
           
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9&repeat=false&width=435&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again.)](https://git.io/typing-svg)
+
+<img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
+
+“	Just need to find Magic. 
+Stella wakes up. <br>
+All four of us will be all right. <br> 
+I'm not leaving you out of my sight.	” <br>
+— to Thomas, Session 6
+
+heavy w.i.p <br>
       </td>
     </tr>
   </table> 
  </div>
 
 <div align = center> 
-<img width="700" height="400" alt="HGPeyx5b0AE9rGx" src="https://github.com/user-attachments/assets/0ad2392e-04c4-4b8b-9641-84cbbba03e52" />
+
 <img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
 
 
@@ -25,9 +35,6 @@ heavy wip omg
 <img width="120" height="55" alt="image" src="https://github.com/user-attachments/assets/6e3d6ae1-bb35-4498-92f8-e6e69dc50be8" /> 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
-
-<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/71241870-f00c-4595-af70-8d0864e63dde" />
-
 
 
  <details>
