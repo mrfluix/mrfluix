@@ -7,7 +7,7 @@
 
 <img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
 
-“	Just need to find Magic. 
+“	Just need to find Magic. <br>
 Stella wakes up. <br>
 All four of us will be all right. <br> 
 I'm not leaving you out of my sight.	” <br>
