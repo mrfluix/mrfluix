@@ -37,7 +37,7 @@ I'm not leaving you out of my sight.	ㅤㅤ” <br>
    
  </details>
  
-[check my pronouns page thx (click me)](https://pronouns.cc/@cappytain)
+[info](https://pronouns.cc/@cappytain)
       </td>
     </tr>
   </table> 
