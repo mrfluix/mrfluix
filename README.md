@@ -7,6 +7,9 @@
     <tr>
       <td>  
 
+      
+$\color{#3e3466}\textsf{All this}$ $\color{#514875}\textsf{grief}$ $\color{#655d85}\textsf{used}$ $\color{#787194}\textsf{to be}$ $\color{#8b85a3}\textsf{love.}$ <br>
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&duration=2000&pause=4000&color=3E3466&center=true&repeat=false&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again." alt="Typing SVG" /></a>
   
 <div align = center>
@@ -49,8 +52,6 @@ $\color{#8b85a3}\textsf{wip}$
 <div align = center> 
 
 <img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
-
-$\color{#3e3466}\textsf{all this}$ $\color{#514875}\textsf{grief}$ $\color{#655d85}\textsf{used}$ $\color{#787194}\textsf{to be}$ $\color{#8b85a3}\textsf{love.}$
 
 <div align = center> 
 
