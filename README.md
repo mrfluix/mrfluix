@@ -50,7 +50,7 @@ $\color{#8b85a3}\textsf{wip}$
 
 <img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
 
-$\color{#3e3466}\textsf{test}$ $\color{#514875}\textsf{test}$ $\color{#655d85}\textsf{test}$ $\color{#787194}\textsf{test}$ $\color{#8b85a3}\textsf{test}$
+$\color{#3e3466}\textsf{all this}$ $\color{#514875}\textsf{grief}$ $\color{#655d85}\textsf{used}$ $\color{#787194}\textsf{to be}$ $\color{#8b85a3}\textsf{love.}$
 
 <div align = center> 
 
