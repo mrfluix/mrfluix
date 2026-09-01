@@ -55,12 +55,15 @@ wip
 <div align = center> 
 
 $\color{#d066de}\textsf{An apple a day keeps the}$ $\color{#fff8db}\textsf{doctor}$ $\color{#d066de}\textsf{away. Shame all the apples are rotten by now.}$ <br>
-heavy wip omg
+heavy wip omg <br>
+
+in all honesty i genuinely cried watching decayed and decrepit. bot hthe livstream and rewatching it. like oh holy SHIT this FUCKASS SERIES. OH MY GOF. SESSIO n. SEVEN. I NEVER RECOVERED  <br>
 
 <div align = center> 
 
 <img width="120" height="55" alt="image" src="https://github.com/user-attachments/assets/6e3d6ae1-bb35-4498-92f8-e6e69dc50be8" /> <br>
-<img width="270" height="250" alt="image" src="https://github.com/user-attachments/assets/82f1d529-085a-4e26-98ac-72ac274e6900" />
+<img width="270" height="250" alt="image" src="https://github.com/user-attachments/assets/82f1d529-085a-4e26-98ac-72ac274e6900" /> <img width="430" height="245" alt="image" src="https://github.com/user-attachments/assets/f44e8a67-1cfc-4689-abcd-81a9309a04df" />
+in another universe
 
  <details>
   <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
