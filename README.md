@@ -1,20 +1,23 @@
+
+<img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
+
 <div align = center> 
   <table>
     <tr>
       <td>  
-          
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9&repeat=false&width=435&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again.)](https://git.io/typing-svg)
+        
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9&repeat=false&width=435&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again.)](https://git.io/typing-svg)
 
-<img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
-
-“	Just need to find Magic. <br>
+<div align = center>
+ㅤㅤㅤㅤ <br>
+“	ㅤㅤJust need to find Magic. <br>
 Stella wakes up. <br>
 All four of us will be all right. <br> 
-I'm not leaving you out of my sight.	” <br>
-— to Thomas, Session 6 <br>
-
+I'm not leaving you out of my sight.	ㅤㅤ” <br>
+ㅤㅤㅤ— to Thomas, Session 6 <br>
+ㅤ
  <details>
-  <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
+  <summary> $\color{#D23E67FF}\textsf{?}$ </summary>
    <div align = center>
 <img width="180" height="119" alt="image" src="https://github.com/user-attachments/assets/0d90978f-82bf-4f50-ba5c-d8f8d00d9d5e" /> <br>
 <div align = right>
