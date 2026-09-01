@@ -11,9 +11,11 @@
 Stella wakes up. <br>
 All four of us will be all right. <br> 
 I'm not leaving you out of my sight.	” <br>
-— to Thomas, Session 6
+— to Thomas, Session 6 <br>
 
 heavy w.i.p <br>
+
+[check my pronouns page thx (click me)](https://pronouns.cc/@cappytain)
       </td>
     </tr>
   </table> 
