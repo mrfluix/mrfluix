@@ -1,3 +1,5 @@
+$\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}}$
+
 
 
 <img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
@@ -22,11 +24,7 @@ $\color{#3e3466}\textsf{All this}$ $\color{#514875}\textsf{grief}$ $\color{#655d
 <div align = center>
   
 ㅤㅤㅤㅤ <br>
-$\color{#3e3466}\textsf{❝	ㅤㅤJust}$ $\color{#514875}\textsf{need}$ $\color{#655d85}\textsf{to}$ $\color{#787194}\textsf{find}$ $\color{#8b85a3}\textsf{Magic.}$ <br>
-$\color{#3e3466}\textsf{Stella}$ $\color{#514875}\textsf{wakes}$ $\color{#655d85}\textsf{up.}$ <br>
-$\color{#3e3466}\textsf{All four}$ $\color{#514875}\textsf{of us}$  $\color{#655d85}\textsf{will}$ $\color{#787194}\textsf{be}$  $\color{#8b85a3}\textsf{alright.}$ <br>
-$\color{#3e3466}\textsf{I'm not leaving}$  $\color{#514875}\textsf{you out}$ $\color{#655d85}\textsf{of}$ $\color{#787194}\textsf{my}$ $\color{#8b85a3}\textsf{sight.	ㅤㅤ❞}$ <br>
-$\color{#3e3466}\textsf{ㅤㅤㅤ— To}$ $\color{#514875}\textsf{Thomas,}$ $\color{#655d85}\textsf{Session}$ $\color{#8b85a3}\textsf{6.}$ <br>
+<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-811c226570ff8600.png" />
 
 $\color{#8b85a3}\textsf{wip}$
 ㅤ
