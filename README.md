@@ -9,7 +9,8 @@ $\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t
       <td>  
 
       
-$\color{#3e3466}\textsf{All this}$ $\color{#514875}\textsf{grief}$ $\color{#655d85}\textsf{used}$ $\color{#787194}\textsf{to be}$ $\color{#8b85a3}\textsf{love.}$ <br>
+
+$\textsf{{\color{#784c84}A}{\color{#886485}l}{\color{#8b627a}l~}{\color{#a5828f}t}{\color{#9f7f85}h}{\color{#a18b8e}i}{\color{#b18f93}s~}{\color{#b9a594}g}{\color{#a09691}r}{\color{#a9a49b}i}{\color{#aa9e96}e}{\color{#ab9792}f~}{\color{#a28c87}u}{\color{#a38085}s}{\color{#96747e}e}{\color{#8e687f}d~}{\color{#8b627a}t}{\color{#886485}o~}{\color{#784c84}b}{\color{#6e547c}e~}{\color{#79506c}l}{\color{#6f4f68}o}{\color{#5c4554}v}{\color{#654d56}e.}}$ <br>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&duration=2000&pause=4000&color=3E3466&center=true&repeat=false&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again." alt="Typing SVG" /></a>
   
