@@ -61,6 +61,9 @@ heavy wip omg <br>
 
 in all honesty i genuinely cried watching decayed and decrepit. bot hthe livstream and rewatching it. like oh holy SHIT this FUCKASS SERIES. OH MY GOF. SESSIO n. SEVEN. I NEVER RECOVERED  <br>
 
+<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/9afd3895-0a73-423d-a90f-44de1e5dd699" />
+
+
 <div align = center> 
 
 <img width="120" height="55" alt="image" src="https://github.com/user-attachments/assets/6e3d6ae1-bb35-4498-92f8-e6e69dc50be8" /> <br>
