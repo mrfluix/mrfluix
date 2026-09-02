@@ -1,5 +1,3 @@
-$\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$ 
-
 <div align = center>
 <img width="380" length="200" src="https://github.com/user-attachments/assets/4d10b6ef-8835-47fc-8e5f-c07fdc6e533c" alt="image" />
 
@@ -40,7 +38,7 @@ $\color{#8b85a3}\textsf{wip}$
    <div align = center>
        <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
 <details>
-  <summary> Just a burning memory. </summary>
+  <summary> $\textsf{{\color{#51365e}Just a burning memory.}}$ </summary>
   <img width="180" height="119" alt="1000049386" src="https://github.com/user-attachments/assets/1c1fc757-6ca3-4dae-ab9b-f6a7f3eb0433" />
 </details>
   
@@ -77,6 +75,8 @@ in another universe
 
  <details>
   <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
+
+$\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$  <br>
 
   hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 
