@@ -1,6 +1,9 @@
 $\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$ 
 
-<img align="left" src="https://file.garden/alyQLjsPPBIhyNXM/643535424-71241870-f00c-4595-af70-8d0864e63dde-ezgif.com-resize.png" alt="image" />
+<div align = center> 
+<img align="center" width="430" height="190" alt="1000049382" src="https://github.com/user-attachments/assets/4d10b6ef-8835-47fc-8e5f-c07fdc6e533c" />
+
+
 
 <div align = center> 
   <table>
