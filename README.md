@@ -1,5 +1,6 @@
 $\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$ 
 
+<div align = center>
 <img width="380" length="200" src="https://github.com/user-attachments/assets/4d10b6ef-8835-47fc-8e5f-c07fdc6e533c" alt="image" />
 
 <div align = center> 
@@ -36,12 +37,11 @@ $\color{#8b85a3}\textsf{wip}$
 ㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
   </summary>
    <div align = center>
-<img width="180" height="119" alt="image" src="https://github.com/user-attachments/assets/0d90978f-82bf-4f50-ba5c-d8f8d00d9d5e" /> <br>
-<div align = right>
-
-<img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
-<img width="180" height="119" alt="1000049386" src="https://github.com/user-attachments/assets/1c1fc757-6ca3-4dae-ab9b-f6a7f3eb0433" />
-
+       <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
+<details>
+  <summary> Just a burning memory. </summary>
+  <img width="180" height="119" alt="1000049386" src="https://github.com/user-attachments/assets/1c1fc757-6ca3-4dae-ab9b-f6a7f3eb0433" />
+</details>
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
 
