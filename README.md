@@ -46,7 +46,9 @@ clickㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e
    
  </details>
  
-[prns page (main info, screenreader friendly)](https://pronouns.cc/@cappytain) [strawpage (screenreader unfriendly)](https://theconspiracy.straw.page/)
+[prns page](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
+
+my strawpage is not screenfriendly! please check pronouns cc if you use a screenreader!
       </td>
     </tr>
   </table> 
