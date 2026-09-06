@@ -29,7 +29,7 @@ $\textsf{{\color{#51365e}ㅤㅤI}{\color{#4d395b}'}{\color{#624073}m~}{\color{#7
 
 $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\color{#a9a49b}T}{\color{#aa9e96}h}{\color{#ab9792}o}{\color{#a28c87}m}{\color{#a38085}a}{\color{#96747e}s,ㅤ}{\color{#8e687f}S}{\color{#8b627a}e}{\color{#8b627d}s}{\color{#8c6289}s}{\color{#80597c}i}{\color{#79506c}o}{\color{#6f4f68}n~}{\color{#5c4554}6}{\color{#654d56}.}}$ <bR>
 
-$\color{#8b85a3}\textsf{wip}$
+$\color{#8b85a3}\textsf{omniverted. assume if i'm on "busy" i'm feeling introverted.}$
 ㅤ
  <details>
   <summary> 
