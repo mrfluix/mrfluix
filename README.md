@@ -28,26 +28,25 @@ $\textsf{{\color{#784c84}ㅤA}{\color{#886485}l}{\color{#8b627a}l~}{\color{#a582
 $\textsf{{\color{#51365e}ㅤㅤI}{\color{#4d395b}'}{\color{#624073}m~}{\color{#784c84}n}{\color{#886485}o}{\color{#8b627a}t~}{\color{#a5828f}}{\color{#9f7f85}l}{\color{#a18b8e}e}{\color{#b18f93}a}{\color{#b9a594}v}{\color{#a09691}i}{\color{#a9a49b}n}{\color{#aa9e96}g~}{\color{#ab9792}y}{\color{#a28c87}o}{\color{#a38085}u~}{\color{#96747e}o}{\color{#8e687f}u}{\color{#8b627a}t~}{\color{#886485}o}{\color{#784c84}f~}{\color{#6e547c}m}{\color{#79506c}y~}{\color{#6f4f68}s}{\color{#5c4554}i}{\color{#654d56}g}{\color{#6e5150}h}{\color{#6c4947}t}{\color{#7b5047}.}{\color{#77525e}    ㅤㅤ❞}}$ <br>
 
 $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\color{#a9a49b}T}{\color{#aa9e96}h}{\color{#ab9792}o}{\color{#a28c87}m}{\color{#a38085}a}{\color{#96747e}s,ㅤ}{\color{#8e687f}S}{\color{#8b627a}e}{\color{#8b627d}s}{\color{#8c6289}s}{\color{#80597c}i}{\color{#79506c}o}{\color{#6f4f68}n~}{\color{#5c4554}6}{\color{#654d56}.}}$ <bR>
-
-$\color{#8b85a3}\textsf{omniverted. assume if i'm on "busy" i'm feeling introverted.}$
 ㅤ
  <details>
   <summary> 
-ㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
+clickㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
   </summary>
    <div align = center>
        <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
 <details>
   <summary> $\textsf{{\color{#51365e}Just a burning memory.}}$ </summary>
   <img width="180" height="119" alt="1000049386" src="https://github.com/user-attachments/assets/1c1fc757-6ca3-4dae-ab9b-f6a7f3eb0433" />
-</details>
-  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=2000&color=D22BC9BB&repeat=false&width=435&lines=I%E2%80%99m+so+sorry%E2%80%A6+for+leaving.;i+would+rather+die%2C+than+leave+again%E2%80%94i+just%E2%80%94+i+cant.;i+need+to+make+sure+that+you%E2%80%99re+okay.;i%E2%80%99m+here+now.+i%E2%80%94i+wasn%E2%80%99t+there+when+you+needed+me+the+most+but%E2%80%94;i%E2%80%99m+here+now%2C+so+please...+let+me+help+you.)](https://git.io/typing-svg)
 
+</details>
+
+  $\color{#8b85a3}\textsf{omniverted. assume if i'm on "busy" i'm feeling introverted.}$ <br>
+  $\color{#8b85a3}\textsf{i'm not in the super bestest mental state due to irl reasons ;v; heavy emphasis please on "keep it lighthearted around me" :]}$ <br>
    
  </details>
  
-[info](https://pronouns.cc/@cappytain)
+[prns page (main info, screenreader friendly)](https://pronouns.cc/@cappytain) [strawpage (screenreader unfriendly)](https://theconspiracy.straw.page/)
       </td>
     </tr>
   </table> 
