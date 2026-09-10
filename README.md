@@ -42,8 +42,11 @@ clickㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e
 </details>
 
   $\color{#8b85a3}\textsf{omniverted. assume if i'm on "busy" i'm feeling introverted.}$ <br>
-  $\color{#8b85a3}\textsf{i'm not in the super bestest mental state due to irl reasons ;v; heavy emphasis please on "keep it lighthearted around me" :]}$ <br>
-   
+  $\color{#8b85a3}\textsf{i'm not in the super bestest mental state due to irl reasons}$ <br>
+  $\color{#8b85a3}\textsf{ ;v; heavy emphasis please on "keep it lighthearted around me" :]}$ <br>
+    $\color{#8b85a3}\textsf{i will never int first unless it's to c+h because i'm easily intimidated}$ <br>
+  $\color{#8b85a3}\textsf{or if im actively chatting in docks}$ <br>
+    
  </details>
  
 [prns page](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
