@@ -65,12 +65,21 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 I'm not going to sugarcoat it. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. <br>
-Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. <br>
-I will publicly out you if you still do so anyways. And I will have zero shame in doing so. <br>
-You are not welcomed in this community in any shape or form. Don't expect to be respected if you can't respect the very thing keeping your fandom standing—that being the content creators themselves. <br>
-If you are one, seek professional help, please. <br>
+Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. <br>
+
+"Just block the CC's, just ignore BB's," And you guys are fucking weird in the first place for even having the nerve to post that online, where eventually, the CC's and other fandomers will see it as well? Use your fucking brain. It's the same excuses every time. Making it about the "character" or the "persona" of the CC doesn't change a single thing, it's just dehumanising them. Objectifying them. You are treating them like a fictional character, which, they are not. I will publicly out you if I need to. And I will have zero shame in doing so. <br>
+
+Is this enough to stop BB'S from changing? No. Probably not, if you've seen the twitter posts. But let it be known:<br>
+
+You are not welcomed in this community in any way, shape or form. Don't expect to be respected if you can't respect the very thing keeping your fandom standing—that being the content creators themselves.  <br>
+
+If you are one, seek professional help, please. There are better ways to cope. <br>
 [Fluixon's tweet about BB'S](https://x.com/Fluixon/status/2100832119362859225) <br>
 
+
+<br>
+
+sorry for the long rant but honestly not really. statesmp, flux and mcrp has a special place in my heart. <br>
 
 <br>
 
