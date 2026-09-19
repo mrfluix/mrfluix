@@ -63,7 +63,7 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 <div align = center> <br>
 
-I'm not going to sugarcoat it. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
+I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. <br>
 Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. <br>
 
