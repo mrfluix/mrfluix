@@ -61,7 +61,18 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 <img width="3000" height="40" alt="tumblr_16d43ae0d8134b69ee75b3d3e4ff37dd_f34994e3_2048" src="https://github.com/user-attachments/assets/7a4d4093-0a5e-4a52-a365-7deba23da6e1" />
 
-<div align = center> 
+<div align = center> <br>
+
+I'm not going to sugarcoat it. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
+Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. <br>
+Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. <br>
+I will publicly out you if you still do so anyways. And I will have zero shame in doing so. <br>
+You are not welcomed in this community in any shape or form. Don't expect to be respected if you can't respect the very thing keeping your fandom standing—that being the content creators themselves. <br>
+If you are one, seek professional help, please. <br>
+[Fluixon's tweet about BB'S](https://x.com/Fluixon/status/2100832119362859225) <br>
+
+
+<br>
 
 $\color{#d066de}\textsf{An apple a day keeps the}$ $\color{#fff8db}\textsf{doctor}$ $\color{#d066de}\textsf{away. Shame all the apples are rotten by now.}$ <br>
 heavy wip omg <br>
