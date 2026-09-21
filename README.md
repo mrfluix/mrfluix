@@ -65,19 +65,20 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. <br>
-Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. <br>
+Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. I am not actively seeking you people out in the first place. <br>
 
 "Just block the CC's, just ignore BB's," And you guys are fucking weird in the first place for even having the nerve to post that online, where eventually, the CC's and other fandomers will see it as well? Use your fucking brain. No amount of censorship, no amount of blocking, no amount of "use emojis!" "avoid Cc's!" this or that will *hide* the fact that you partake in BB. The CC' HAVE seen it already. It's the same excuses every time. Making BB works about the "character" or the "persona" of the CC doesn't change a single thing, it's just dehumanising them. Objectifying them. You are treating them like a fictional character, which, they are not. Yes, that is their online persona. "That's not them, thats the characte" It very much still *is* because that is the character they are playing? Their persona? Hello? Same name.  <br>
 
 Your excuse is basically saying "It's not Flux, it's Flux!" Make it make sense. FYI, to an extent that is *still* them, which is literally the reason why FANWORK BOUNDARIES EXIST. Otherwise, they wouldn't *have* any—seriously, *look* at actual fictional characters. Do fictional characters have fanwork boundaries? No. Because they aren't real people, unlike CC'S, who are breathing, living human beings. I will publicly out you if I need to. And I will have zero shame in doing so. <br>
 
-Is this enough to stop BB'S from changing? No. Probably not, if you've seen the twitter posts. Call me a BW. Shame me. But let it be known, and speaking on the behalf of the MCYT community:<br>
+Is this enough to stop BB'S from changing? No. Probably not, if you've seen the twitter posts. Shame me. But let it be known, and speaking on the behalf of the MCYT community:<br>
 
 You are not welcomed in this community in any way, shape or form. Don't expect to be respected if you can't respect the very thing keeping your fandom standing—that being the content creators themselves. <br>
 
 If you are one, seek professional help, please. There are better ways to cope. <br>
 [Fluixon's tweet about BB'S](https://x.com/Fluixon/status/2100832119362859225) <br>
 [Sidefall's tweet about BB'S](https://x.com/sidefallisaliar/status/2101356905876635893)
+[Flowtive's video about BB'S](https://youtu.be/vym9bEcHtGQ?si=UVMeEbHBfecLeW6q)
 
 
 <br>
