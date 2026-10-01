@@ -63,6 +63,9 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 <div align = center> <br>
 
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/233ba3b6-eae7-4be0-97b2-8d25d870eec4" />
+
+
 I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. <br>
 Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. I am not actively seeking you people out in the first place. <br>
