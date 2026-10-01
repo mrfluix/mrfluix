@@ -66,6 +66,11 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/233ba3b6-eae7-4be0-97b2-8d25d870eec4" />
 
 
+<details>
+  <summary> 
+fun surprise for boundary breakers 
+  </summary>
+  
 I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. <br>
 Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. I am not actively seeking you people out in the first place. <br>
@@ -81,12 +86,20 @@ You are not welcomed in this community in any way, shape or form. Don't expect t
 If you are one, seek professional help, please. There are better ways to cope. <br>
 [Fluixon's tweet about BB'S](https://x.com/Fluixon/status/2100832119362859225) <br>
 [Sidefall's tweet about BB'S](https://x.com/sidefallisaliar/status/2101356905876635893)
-[Flowtive's video about BB'S](https://youtu.be/vym9bEcHtGQ?si=UVMeEbHBfecLeW6q)
-
-
-<br>
+[Flowtive's video about BB'S](https://youtu.be/vym9bEcHtGQ?si=UVMeEbHBfecLeW6q) <br>
 
 sorry for the long rant but honestly not really. statesmp, flux and mcrp has a special place in my heart. <br>
+
+</details>
+
+<img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/cc9cd8ee-c47d-481e-87af-f8b750516cce" />
+<img width="244" height="246" alt="image" src="https://github.com/user-attachments/assets/d3776d73-251e-4db9-8023-ea218168f1cb" />
+<img width="219" height="251" alt="image" src="https://github.com/user-attachments/assets/cbc30424-16c4-42b9-89a5-2f149d13ee32" />
+
+
+cant do these freaking trends CASUE EVERYONE SAYS THE SAME DAMN THING
+
+
 
 <br>
 
