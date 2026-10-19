@@ -31,7 +31,7 @@ $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\
 ㅤ
  <details>
   <summary> 
-clickㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
+byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
   </summary>
    <div align = center>
        <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
@@ -41,11 +41,13 @@ clickㅤ<img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e
 
 </details>
 
-  $\color{#8b85a3}\textsf{omniverted. assume if i'm on "busy" i'm feeling introverted.}$ <br>
-  $\color{#8b85a3}\textsf{i'm not in the super bestest mental state due to irl reasons}$ <br>
-  $\color{#8b85a3}\textsf{ ;v; heavy emphasis please on "keep it lighthearted around me" :]}$ <br>
-    $\color{#8b85a3}\textsf{i will never int first unless it's to c+h because i'm easily intimidated}$ <br>
-  $\color{#8b85a3}\textsf{or if im actively chatting in docks}$ <br>
+bare in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
+GMT+8 , i'm focusing more on my studies :p you'll see me around lurking about <br>
+always interact first if i'm not actively chatting <br>
+diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
+iwec if all you talk about is negativity. sorry. my mental health is bad as is man <br>
+
+yes i am @mir4-hq but i put this ghub on all my fluix/state CC skins :P more often than not it probably means i'm an introverted mess at the moment <br>
     
  </details>
  
