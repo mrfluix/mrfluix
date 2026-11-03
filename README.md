@@ -41,7 +41,7 @@ byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c
 
 </details>
 
-bare in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
+bear in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
 GMT+8 , i'm focusing more on my studies :p you'll see me around lurking about <br>
 always interact first if i'm not actively chatting <br>
 diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
