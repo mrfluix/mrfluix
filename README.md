@@ -47,7 +47,7 @@ always interact first if i'm not actively chatting <br>
 several, several social defects. which ruins my capability to socialize with people. i do not use tone tags, tell me to use them if needed <br>
 diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
 
-yes i am @mir4-hq but i put this ghub on all my fluix/state CC skins :P more often than not it probably means i'm an introverted mess at the moment <br>
+yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
     <details>
   <summary> $\textsf{{\color{#51365e}dni/iwc}}$ </summary>
  i don't really have a dni just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
