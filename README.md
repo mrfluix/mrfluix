@@ -44,6 +44,7 @@ byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c
 bear in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
 GMT+8 , i'm focusing more on my studies :p you'll see me around lurking about <br>
 always interact first if i'm not actively chatting <br>
+several, several social defects. i do not use tone tags, tell me to use them if needed <br>
 diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
 
 yes i am @mir4-hq but i put this ghub on all my fluix/state CC skins :P more often than not it probably means i'm an introverted mess at the moment <br>
@@ -52,7 +53,20 @@ yes i am @mir4-hq but i put this ghub on all my fluix/state CC skins :P more oft
  i don't really have a dni just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
  all i ask is to have basic human deceny :p <br>
 
- iwec genuine verity/thatmob/lookout3d/twixxel idk the fandom i js know its an arg or wtv. all my interactions with a fan have been mostly negative but i don't wanna stereotype😭 <br>
+<br>
+
+iwec list <br>
+forsaken <br>
+twixxel, thatmob, whispy, grox, verity, literally whatever that fandom is called. no hate, just general negative experiences from everyone ive talked to.. <br>
+"ragebaiter" mcyters (judelow, chuck nasty, list goes on). YES this is targeted based off what happened. <br>
+<img width="874" height="97" alt="image" src="https://github.com/user-attachments/assets/1c116b3f-d42c-4471-9361-490bdbb54ad0" /> <br>
+there is a very fine line between bullying and ragebait. sure, one image probably wont convince you, and yes, it's a competiton, but there's a thing called having GOOD SPORTSMANSHIP. when you dont control your fucking chat to stop hating on the other streamer, it's not good sportmanship. it's not good sportmanship just let this happen. [clip here](https://x.com/luverlow/status/2118464663101071698) , [flow statement](https://x.com/flowtives/status/2118705107537940498) <br>
+
+sharplow shippers OHHHH i just had to say it okay? fluxarata too. yeah yeah i love me some fluxarata and polarity duo but some of you are genuine freaks about it like god forbid flux has a damn relationship /p or /r outside of fucking SAPARATA bro <br>
+
+unncessary negativity is very unwelcome. if you, your mcyter, or youtuber in general spreads hate, uses insensitive jokes with no PROPER apology, yes, i WILL assume you are defending their actions and endorsing it. i really don't want this to be a dni since i used to be in thre strengthsmp fandom & have friends in them but there is a DAMN line okay? <br>
+
+
 
 </details>
 
