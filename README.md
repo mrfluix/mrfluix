@@ -62,7 +62,7 @@ twixxel, thatmob, whispy, grox, verity, literally whatever that fandom is called
 <img width="874" height="97" alt="image" src="https://github.com/user-attachments/assets/1c116b3f-d42c-4471-9361-490bdbb54ad0" /> <br>
 there is a very fine line between bullying and ragebait. sure, one image probably wont convince you, and yes, it's a competiton, but there's a thing called having GOOD SPORTSMANSHIP. when you dont control your fucking chat to stop hating on the other streamer, it's not good sportmanship. it's not good sportmanship just let this happen. [clip here](https://x.com/luverlow/status/2118464663101071698) , [flow statement](https://x.com/flowtives/status/2118705107537940498) <br>
 
-sharplow shippers OHHHH i just had to say it okay? fluxarata too. yeah yeah i love me some fluxarata and polarity duo but some of you are genuine freaks about it like god forbid flux has a damn relationship /p or /r outside of fucking SAPARATA bro <br>
+sharplow shippers OHHHH i just had to say it okay? fluxarata too. yeah yeah i love me some fluxarata and polarity duo but some of you are genuine freaks about it like god forbid flux has a damn relationship /p or /r outside of fucking SAPARATA bro. it goes the other way around too like jesus christ let saps breathe outside of flux <br>
 
 unncessary negativity is very unwelcome. if you, your mcyter, or youtuber in general spreads hate, uses insensitive jokes with no PROPER apology, yes, i WILL assume you are defending their actions and endorsing it. i really don't want this to be a dni since i used to be in thre strengthsmp fandom & have friends in them but there is a DAMN line okay? <br>
 
