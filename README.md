@@ -91,8 +91,10 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 <details>
   <summary> 
-fun surprise for boundary breakers 
+for fellow bb's click!! ><
   </summary>
+
+  Fell for it? Hopefully you did! Now, read this section very carefully... or don't. <Br>
   
 I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
 Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. <br>
