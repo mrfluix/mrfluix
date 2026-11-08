@@ -50,7 +50,7 @@ diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words +
 yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
     <details>
   <summary> $\textsf{{\color{#51365e}dni/iwc}}$ </summary>
- i don't really have a dni just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
+ i don't really have a dni (basic criteria applies) since people don't really follow it anyways. anyways just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
  all i ask is to have basic human deceny :p <br>
 
 <br>
