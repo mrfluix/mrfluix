@@ -57,7 +57,7 @@ yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the intro
 
 iwec list <br>
 forsaken <br>
-twixxel, thatmob, whispy, grox, verity, literally whatever that fandom is called. no hate, just general negative experiences from everyone ive talked to.. <br>
+twixxel, thatmob, whispy, grox, verity, literally whatever that fandom is called. no hate, talented youtubers, just general negative experiences from everyone ive talked to.. <br>
 "ragebaiter" mcyters (judelow, chuck nasty, list goes on). YES this is targeted based off what happened. <br>
 <img width="874" height="97" alt="image" src="https://github.com/user-attachments/assets/1c116b3f-d42c-4471-9361-490bdbb54ad0" /> <br>
 there is a very fine line between bullying and ragebait. sure, one image probably wont convince you, and yes, it's a competiton, but there's a thing called having GOOD SPORTSMANSHIP. when you dont control your fucking chat to stop hating on the other streamer, it's not good sportmanship. it's not good sportmanship just let this happen. [clip here](https://x.com/luverlow/status/2118464663101071698) , [flow statement](https://x.com/flowtives/status/2118705107537940498) <br>
