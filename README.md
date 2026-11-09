@@ -41,6 +41,8 @@ byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c
 
 </details>
 
+making this better later <br>
+
 bear in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
 GMT+8 , i'm focusing more on my studies :p you'll see me around lurking about <br>
 always interact first if i'm not actively chatting <br>
