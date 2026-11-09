@@ -55,18 +55,8 @@ yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the intro
  i don't really have a dni (basic criteria applies) since people don't really follow it anyways. anyways just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
  all i ask is to have basic human deceny :p <br>
 
-<br>
-
-iwec list <br>
-forsaken <br>
-twixxel, thatmob, whispy, grox, verity, literally whatever that fandom is called. no hate, talented youtubers, just general negative experiences from everyone ive talked to.. <br>
-"ragebaiter" mcyters (judelow, chuck nasty, list goes on). YES this is targeted based off what happened. <br>
-<img width="874" height="97" alt="image" src="https://github.com/user-attachments/assets/1c116b3f-d42c-4471-9361-490bdbb54ad0" /> <br>
-there is a very fine line between bullying and ragebait. sure, one image probably wont convince you, and yes, it's a competiton, but there's a thing called having GOOD SPORTSMANSHIP. when you dont control your fucking chat to stop hating on the other streamer, it's not good sportmanship. it's not good sportmanship just let this happen. [clip here](https://x.com/luverlow/status/2118464663101071698) , [flow statement](https://x.com/flowtives/status/2118705107537940498) <br>
-
-sharplow shippers OHHHH i just had to say it okay? fluxarata too. yeah yeah i love me some fluxarata and polarity duo but some of you are genuine freaks about it like god forbid flux has a damn relationship /p or /r outside of fucking SAPARATA bro. it goes the other way around too like jesus christ let saps breathe outside of flux <br>
-
-unncessary negativity is very unwelcome. if you, your mcyter, or youtuber in general spreads hate, uses insensitive jokes with no PROPER apology, yes, i WILL assume you are defending their actions and endorsing it. i really don't want this to be a dni since i used to be in thre strengthsmp fandom & have friends in them but there is a DAMN line okay? <br>
+ moreorless i probably won't bother putting iwec or specific fandoms n whatever cause i realize now it's probably useless <br>
+ i block & hide freely but regardless i'll usually ignore people rather than outright block if it's not that big (e.g youre just existing near me) <br>
 
 
 
