@@ -49,6 +49,8 @@ always interact first if i'm not actively chatting <br>
 several, several social defects. which ruins my capability to socialize with people. i do not use tone tags, tell me to use them if needed.. moreorless i can come off as rude when i dont intend to <br>
 diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
 
+BRO PLEASE BMF IF YOU LIKE CONPSIRAYC GROUP STATE SMP OR HOSTEL DECAYED AND EDCEREPIT IL LSTART CRYING <br>
+
 yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
     <details>
   <summary> $\textsf{{\color{#51365e}dni/iwc}}$ </summary>
@@ -58,7 +60,8 @@ yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the intro
  moreorless i probably won't bother putting iwec or specific fandoms n whatever cause i realize now it's probably useless <br>
  i block & hide freely but regardless i'll usually ignore people rather than outright block if it's not that big (e.g youre just existing near me) <br>
 
-
+umm ships iwc like i love me some ships but after the Great Fluixon BB Callout Tweet and half of fluxarata fans got outed for being bbs?? uum. what the fuck was that. <br>
+btw i dont ship DaD!Thomflux SPECIFICALLY because it feels ?? wrong? idk theyre more of a father-son duo to me <br>
 
 </details>
 
