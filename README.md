@@ -92,7 +92,7 @@ for fellow bb's click!! ><
   Fell for it? Hopefully you did! Now, read this section very carefully... or don't. <Br>
   
 I'm not going to sugarcoat it. I know this will come off as harsh. BB's (Boundary breakers) are not welcomed in my presence whatsoever. <br>
-Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. <br>
+Don't follow me. Don't friend me. Don't sit next to me. Don't fucking interact with me. It is a block on sight the moment I realize you are one and actively interacting. I literally CANNOT believe i have to say this BECAUSE THIS HAS HAPPENED BEFORE. <br>
 Whatever excuse, reasoning you have, I really don't want to hear it. Argue with me, attack me, I don't care. My stance is clear. Can't handle that? Awww, too bad. I am not actively seeking you people out in the first place. <br>
 
 "Just block the CC's, just ignore BB's," And you guys are fucking weird in the first place for even having the nerve to post that online, where eventually, the CC's and other fandomers will see it as well? Use your fucking brain. No amount of censorship, no amount of blocking, no amount of "use emojis!" "avoid Cc's!" this or that will *hide* the fact that you partake in BB. The CC' HAVE seen it already. It's the same excuses every time. Making BB works about the "character" or the "persona" of the CC doesn't change a single thing, it's just dehumanising them. Objectifying them. You are treating them like a fictional character, which, they are not. Yes, that is their online persona. "That's not them, thats the characte" It very much still *is* because that is the character they are playing? Their persona? Hello? Same name.  <br>
