@@ -50,6 +50,7 @@ several, several social defects. which ruins my capability to socialize with peo
 diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
 
 BRO PLEASE BMF IF YOU LIKE CONPSIRAYC GROUP STATE SMP OR HOSTEL DECAYED AND EDCEREPIT IL LSTART CRYING <br>
+for people who don't really know what omniversion is but it basically means i have VERY VERY high highs and very VERY low lows of social battery. there is no "middle". if im extroverted and happy in one hour i could be introverted in the next. i cant control it :[ <br>
 
 yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
     <details>
