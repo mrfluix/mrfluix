@@ -57,10 +57,7 @@ extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343
 - UTC+8; i'm focusing more on my studies :p you'll see me around lurking about <br>
 
 **Please tell me if there's anything wrong or any concerns you have with me!** I won't take it to heart, cross my heart and hope to die... i'm not a snowflake!! <br>
-- genuinely please tell me i want to be better at social stuff ;D <br>
-no like seriously i don't know why people are scared of me PLEASE IM FRIENDLIST GUY OAT <br>
-
-yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
+jokes aside genuinely please tell me i want to be better at social stuff ;D <br>
     <details>
   <summary> $\textsf{{\color{#51365e}dni/iwc}}$ </summary>
  i don't really have a dni (basic criteria applies) since people don't really follow it anyways. anyways just don't be: a boundary breaker of wtv kind, weird (e.g parasocial), flirty, or seriously negative 24/7 like as in that's your entire thing. i can't help myself. so i can't help you. sorry bro <br>
@@ -130,6 +127,8 @@ if you missed it: i'm not a boundary warrior or whatever you want to call people
 $\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$  <br>
 
 hey funfact the people with burnt faces in the funny family photos i added are the people who are also gone!😂😂😂😂😂😂😂😂😭😭😭😭😭 <br>
+
+no like seriously i don't know why people are scared of me PLEASE IM FRIENDLIST GUY OAT <br>
 
 <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/cc9cd8ee-c47d-481e-87af-f8b750516cce" />
 <img width="244" height="246" alt="image" src="https://github.com/user-attachments/assets/d3776d73-251e-4db9-8023-ea218168f1cb" />
