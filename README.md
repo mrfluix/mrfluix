@@ -46,6 +46,8 @@ extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343
 <details>
   <summary> $\textsf{{\color{#51365e}Just a burning memory.}}$ </summary>
   <img width="180" height="119" alt="1000049386" src="https://github.com/user-attachments/assets/1c1fc757-6ca3-4dae-ab9b-f6a7f3eb0433" />
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&duration=2500&pause=100&color=3E3466&center=true&multiline=true&repeat=false&width=500&height=100&lines=and+on+that+day+when+all+of+your+happy+daydreams+seem+tiny;and+all+of+your+nightmares+seem+huge;on+the+day+when+the+worst+%E2%80%98what+if%E2%80%99+;you+can+ever+imagine+has+already+happened;all+you+have+to+do+is+sit+there+while+you+wait+for+the;+paramedics+and+hope+that+you+are+wrong;pray+that+there+is+still;a+person+here+to+save.&groups=4%2C4)](https://git.io/typing-svg)
 
 </details>
 
