@@ -110,8 +110,18 @@ If you are one, seek professional help, please. There are better ways to cope. <
 [Flowtive's video about BB'S](https://youtu.be/vym9bEcHtGQ?si=UVMeEbHBfecLeW6q) <br>
 
 sorry for the long rant but honestly not really. statesmp, flux and mcrp has a special place in my heart. <br>
+if you missed it: i'm not a boundary warrior or whatever you want to call people who deliberately target bb's. i block on sight. i just wanted to give my stance. <br>
 
 </details>
+
+
+
+ <details>
+  <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
+
+$\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$  <br>
+
+hey funfact the people with burnt faces in the funny family photos i added are the people who are also gone!😂😂😂😂😂😂😂😂😭😭😭😭😭 <br>
 
 <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/cc9cd8ee-c47d-481e-87af-f8b750516cce" />
 <img width="244" height="246" alt="image" src="https://github.com/user-attachments/assets/d3776d73-251e-4db9-8023-ea218168f1cb" />
@@ -138,12 +148,6 @@ in all honesty i genuinely cried watching decayed and decrepit. bot hthe livstre
 <img width="270" height="250" alt="image" src="https://github.com/user-attachments/assets/82f1d529-085a-4e26-98ac-72ac274e6900" /> <img width="430" height="245" alt="image" src="https://github.com/user-attachments/assets/f44e8a67-1cfc-4689-abcd-81a9309a04df" />
 in another universe
 
- <details>
-  <summary> $\color{#D23E67FF}\textsf{. . .}$ </summary>
-
-$\textsf{{\color{#784c84}T}{\color{#886485}e}{\color{#8b627a}s}{\color{#a5828f}t~}{\color{#9f7f85}T}{\color{#a18b8e}e}{\color{#b18f93}s}{\color{#b9a594}t~}{\color{#a09691}T}{\color{#a9a49b}e}{\color{#aa9e96}s}{\color{#ab9792}t~}{\color{#a28c87}T}{\color{#a38085}e}{\color{#96747e}s}{\color{#8e687f}t~~}{\color{#8b627a}T}{\color{#886485}e}{\color{#784c84}s}{\color{#6e547c}t~}{\color{#79506c}T}{\color{#6f4f68}e}{\color{#5c4554}s}{\color{#654d56}t~~}{\color{#6e5150}T}{\color{#6c4947}e}{\color{#7b5047}s}{\color{#7a514b}t~~}{\color{#6c544f}T}{\color{#705759}e}{\color{#745864}s}{\color{#77525e}t~~}}$  <br>
-
-hey funfact the people with burnt faces in the funny family photos i added are the people who are also gone!😂😂😂😂😂😂😂😂😭😭😭😭😭 <br>
 
   hi guys😂 check @mir4-hq i'll decor this later maybe.. <br>
 
