@@ -28,10 +28,18 @@ $\textsf{{\color{#784c84}ㅤA}{\color{#886485}l}{\color{#8b627a}l~}{\color{#a582
 $\textsf{{\color{#51365e}ㅤㅤI}{\color{#4d395b}'}{\color{#624073}m~}{\color{#784c84}n}{\color{#886485}o}{\color{#8b627a}t~}{\color{#a5828f}}{\color{#9f7f85}l}{\color{#a18b8e}e}{\color{#b18f93}a}{\color{#b9a594}v}{\color{#a09691}i}{\color{#a9a49b}n}{\color{#aa9e96}g~}{\color{#ab9792}y}{\color{#a28c87}o}{\color{#a38085}u~}{\color{#96747e}o}{\color{#8e687f}u}{\color{#8b627a}t~}{\color{#886485}o}{\color{#784c84}f~}{\color{#6e547c}m}{\color{#79506c}y~}{\color{#6f4f68}s}{\color{#5c4554}i}{\color{#654d56}g}{\color{#6e5150}h}{\color{#6c4947}t}{\color{#7b5047}.}{\color{#77525e}    ㅤㅤ❞}}$ <br>
 
 $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\color{#a9a49b}T}{\color{#aa9e96}h}{\color{#ab9792}o}{\color{#a28c87}m}{\color{#a38085}a}{\color{#96747e}s,ㅤ}{\color{#8e687f}S}{\color{#8b627a}e}{\color{#8b627d}s}{\color{#8c6289}s}{\color{#80597c}i}{\color{#79506c}o}{\color{#6f4f68}n~}{\color{#5c4554}6}{\color{#654d56}.}}$ <bR>
+
+candie / fluixon / cappy(tain) <br>
+he/they/she , bigender , **minor** <br>
+w2i + cxh freely & encouraged! :] <br>
+friendliest silliest guy EVER!! <br>
+
+
+coloring+decorating more when my github stops being an asshole ok <br>
 ㅤ
  <details>
   <summary> 
-byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
+extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
   </summary>
    <div align = center>
        <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
@@ -41,16 +49,15 @@ byi <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c
 
 </details>
 
-making this better later <br>
+**PLEASE TAKE NOTE:** <br>
+- Omniverted individual, i love talking, i love making friends!! Just be wary of my fluctuating social battery ;D <br>
+>  - And due to *complications* (social defects i'd rather not name fully) it's hard for me to keep long-term relationships, or understand social cues/norms, and pretty much anything *related to socializing...* Tone-deaf, as one would name it. ALAS i'm in the process of trying to get over this!  <br>
+  - I don't use tonetags. Please tell me if it's needed + always interact first if i'm not actively chatting ;v; whispers are super appreciated & 9 times out of 10 i'll respond
+  - **DIAGNOSED DYSLEXIA**. fonts are hard to read fast, super small text is too, please just use normal settings & dont use 100million symbols that are hard to read. This can also make what i say *confusing* or *mispell* often... <br>
+- UTC+8; i'm focusing more on my studies :p you'll see me around lurking about <br>
 
-bear in mind i am very omniverted: i can shift from yapmode to quietness. sorry <br>
-GMT+8 , i'm focusing more on my studies :p you'll see me around lurking about <br>
-always interact first if i'm not actively chatting <br>
-several, several social defects. which ruins my capability to socialize with people. i do not use tone tags, tell me to use them if needed.. moreorless i can come off as rude when i dont intend to <br>
-diagnosed w/ dyslexia, which makes fonts hard to read fast + i switch up words + mispell, this and that, please bring it up if anything i say is confusing because of that..... <br>
-
-BRO PLEASE BMF IF YOU LIKE CONPSIRAYC GROUP STATE SMP OR HOSTEL DECAYED AND EDCEREPIT IL LSTART CRYING <br>
-for people who don't really know what omniversion is but it basically means i have VERY VERY high highs and very VERY low lows of social battery. there is no "middle". if im extroverted and happy in one hour i could be introverted in the next. i cant control it :[ <br>
+**Please tell me if there's anything wrong or any concerns you have with me!** I won't take it to heart, cross my heart and hope to die... i'm not a snowflake!! <br>
+no like seriously i don't know why people are scared of me PLEASE IM FRIENDLIST GUY OAT <br>
 
 yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
     <details>
