@@ -57,6 +57,7 @@ extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343
 - UTC+8; i'm focusing more on my studies :p you'll see me around lurking about <br>
 
 **Please tell me if there's anything wrong or any concerns you have with me!** I won't take it to heart, cross my heart and hope to die... i'm not a snowflake!! <br>
+- genuinely please tell me i want to be better at social stuff ;D <br>
 no like seriously i don't know why people are scared of me PLEASE IM FRIENDLIST GUY OAT <br>
 
 yes i am @MIR4-HQ, moreorless this github usually means i'm leaning on the introversion side of omniversion. idk what to tell you man i'm undiagnosed asf (except for dyslexia caught that shi at an early AGE) <br>
