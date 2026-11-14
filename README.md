@@ -96,6 +96,8 @@ my strawpage is not screenfriendly! please check pronouns cc if you use a screen
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/233ba3b6-eae7-4be0-97b2-8d25d870eec4" />
 
+searching for my daughter whose infected and i gave her a "cure" coming from a totally qualified doctor and she got worse so now i gotta slime out the doctor and find my daughter and hten my whole family tears apart and then in the middle of it i leave therefore making the fallout worse, wdyd in this situation <br>
+
 
 <details>
   <summary> 
