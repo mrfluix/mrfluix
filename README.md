@@ -32,8 +32,6 @@ $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\
 
 <img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-449be1cd048193a4.png" /> <br>
 
-<div align = center>
-<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-25acaf344dfd3637.png" />
   
 <br>
 
