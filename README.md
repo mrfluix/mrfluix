@@ -32,7 +32,8 @@ $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\
 
 <img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-449be1cd048193a4.png" /> <br>
 
-  
+<div align = center>
+<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-25acaf344dfd3637.png" />  
 <br>
 
 <img width="20" height="20" alt="1000051578" src="https://github.com/user-attachments/assets/72c68e4b-a039-4da6-8ea2-2377a67a3f9d" />ㅤㅤcappy(tain)ㅤㅤ**candie**ㅤㅤfluixonㅤㅤ <img width="20" height="20" alt="tumblr_7cafca841172adfe905b8339c5e83742_bde15e38_75" src="https://github.com/user-attachments/assets/039e224b-d01d-40ef-9e2e-c9cb5c33176f" /><br>
@@ -81,7 +82,7 @@ btw i dont ship DaD!Thomflux SPECIFICALLY because it feels ?? wrong? idk theyre 
 [prns.cc](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
 
 $\textsf{{\color{#784c84}D}{\color{#886485}o}{\color{#8b627a}n}{\color{#a5828f}'t~}{\color{#9f7f85}t}{\color{#a18b8e}h}{\color{#b18f93}i}{\color{#b9a594}n}{\color{#a09691}k~}{\color{#a9a49b}o}{\color{#aa9e96}f~}{\color{#ab9792}h}{\color{#a28c87}e}{\color{#a38085}r.}}$  <br>
-$\textsf{{\color{#96747e} ㅤㅤ   ㅤㅤ ㅤㅤ ... a}{\color{#8e687f}l}{\color{#8b627a}w}{\color{#886485}a}{\color{#784c84}y}{\color{#6e547c}s~}{\color{#79506c}t}{\color{#6f4f68}h}{\color{#5c4554}i}{\color{#654d56}n}{\color{#6e5150}k~}{\color{#6c4947}o}{\color{#7b5047}f~}{\color{#7a514b}h}{\color{#6c544f}e}{\color{#705759}r.}}$ <br>
+$\textsf{{\color{#96747e} ㅤㅤ   ㅤㅤ ㅤㅤ ... a}{\color{#8e687f}l}{\color{#8b627a}w}{\color{#886485}a}{\color{#784c84}y}{\color{#6e547c}s~}{\color{#79506c}t}{\color{#6f4f68}h}{\color{#5c4554}i}{\color{#654d56}n}{\color{#6e5150}k~}{\color{#6c4947}o}{\color{#7b5047}f~}{\color{#7a514b}h}{\color{#6c544f}e}{\color{#705759}r.}}$    ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ<br>
       </td>
     </tr>
   </table> 
