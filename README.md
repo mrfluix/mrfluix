@@ -58,7 +58,7 @@ extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343
 
 **PLEASE TAKE NOTE:** <br>
 - Omniverted individual, i love talking, i love making friends!! Just be wary of my fluctuating social battery ;D <br>
->  - And due to *complications* (social defects i'd rather not name fully) it's hard for me to keep long-term relationships, or understand social cues/norms, and pretty much anything *related to socializing...* Tone-deaf, as one would name it. ALAS i'm in the process of trying to get over this!  <br>
+>  - And due to *complications* (social defects i'd rather not name fully) it's hard for me to keep long-term relationships, or understand social cues/norms, and pretty much anything *related to socializing...* Tone-deaf, as one would name it. I quite literally, cannot read the room ;-; ALAS i'm in the process of trying to get over this!  <br>
   - I don't use tonetags. Please tell me if it's needed + always interact first if i'm not actively chatting ;v; whispers are super appreciated & 9 times out of 10 i'll respond
   - **DIAGNOSED DYSLEXIA**. fonts are hard to read fast, super small text is too, please just use normal settings & dont use 100million symbols that are hard to read. This can also make what i say *confusing* or *mispell* often... <br>
 - UTC+8; i'm focusing more on my studies :p you'll see me around lurking about <br>
