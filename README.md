@@ -41,6 +41,8 @@ friendliest silliest guy EVER!! <br>
 
 
 coloring+decorating more when my github stops being an asshole ok <br>
+
+<img width="360" height="200" alt="Untitled320_20261115005249-ezgif com-crop" src="https://github.com/user-attachments/assets/6561b2b9-0c69-4628-96ff-aece5ad65384" /> <br>
 ㅤ
  <details>
   <summary> 
