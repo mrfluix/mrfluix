@@ -1,8 +1,4 @@
-<img width="20" height="20" alt="1000051578" src="https://github.com/user-attachments/assets/72c68e4b-a039-4da6-8ea2-2377a67a3f9d" />
 
-<img width="20" height="20" alt="1000051579" src="https://github.com/user-attachments/assets/ebe854cf-3ddd-49ea-88ae-d35fa8211177" />
-
-<img width="20" height="20" alt="1000051577" src="https://github.com/user-attachments/assets/91271d88-48e3-4c71-b862-1c1cbde63977" />
 <div align = center>
 <img width="380" length="200" src="https://github.com/user-attachments/assets/4d10b6ef-8835-47fc-8e5f-c07fdc6e533c" alt="image" />
 
@@ -34,19 +30,21 @@ $\textsf{{\color{#51365e}ㅤㅤI}{\color{#4d395b}'}{\color{#624073}m~}{\color{#7
 
 $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\color{#a9a49b}T}{\color{#aa9e96}h}{\color{#ab9792}o}{\color{#a28c87}m}{\color{#a38085}a}{\color{#96747e}s,ㅤ}{\color{#8e687f}S}{\color{#8b627a}e}{\color{#8b627d}s}{\color{#8c6289}s}{\color{#80597c}i}{\color{#79506c}o}{\color{#6f4f68}n~}{\color{#5c4554}6}{\color{#654d56}.}}$ <bR>
 
-candie / fluixon / cappy(tain) <br>
-he/they/she , bigender , **minor** <br>
-w2i + cxh freely & encouraged! :] <br>
+<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-449be1cd048193a4.png" /> <br>
+
+<div align = center>
+<img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-25acaf344dfd3637.png" />
+  
+<br>
+
+<img width="20" height="20" alt="1000051578" src="https://github.com/user-attachments/assets/72c68e4b-a039-4da6-8ea2-2377a67a3f9d" />ㅤㅤcappy(tain)ㅤㅤ**candie**ㅤㅤfluixonㅤㅤ <img width="20" height="20" alt="tumblr_7cafca841172adfe905b8339c5e83742_bde15e38_75" src="https://github.com/user-attachments/assets/039e224b-d01d-40ef-9e2e-c9cb5c33176f" /><br>
+he/**they**/she ㅤ<img width="18" height="18" alt="tumblr_478f828c5b5274bf80f5470458781fff_35475ee2_75" src="https://github.com/user-attachments/assets/2e48c952-3d3e-4a6d-93df-9439aa6ad1d6" />ㅤ bigender ㅤㅤ **minor** <br>
+w2i + cxh freely & encouraged! :] <img width="20" height="20" alt="tumblr_eab95519e581ba3bed64a84d04d262e3_d069e208_75" src="https://github.com/user-attachments/assets/11b4c61c-45d4-4c60-b583-5eb37b6db0d4" /> <br>
 friendliest silliest guy EVER!! <br>
-
-
-coloring+decorating more when my github stops being an asshole ok <br>
-
-<img width="360" height="200" alt="Untitled320_20261115005249-ezgif com-crop" src="https://github.com/user-attachments/assets/6561b2b9-0c69-4628-96ff-aece5ad65384" /> <br>
 ㅤ
  <details>
   <summary> 
-extended <img src="https://file.garden/alyQLjsPPBIhyNXM/tumblr_8fffea28825b94343e000c0472003f54_08091cb7_75.webp">
+ ㅤㅤ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/599f2709-b632-43be-8788-3af5419a7443" />  ㅤㅤ $\textsf{{\color{#a28c87}exte}{\color{#a38085}nded}}$
   </summary>
    <div align = center>
        <img width="180" height="119" alt="1000049387" src="https://github.com/user-attachments/assets/30ad1e5b-1ac0-406e-9d83-fd759cfe7efb" />
@@ -82,9 +80,10 @@ btw i dont ship DaD!Thomflux SPECIFICALLY because it feels ?? wrong? idk theyre 
 
  </details>
  
-[prns page](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
+[prns.cc](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
 
-my strawpage is not screenfriendly! please check pronouns cc if you use a screenreader!
+$\textsf{{\color{#784c84}D}{\color{#886485}o}{\color{#8b627a}n}{\color{#a5828f}'t~}{\color{#9f7f85}t}{\color{#a18b8e}h}{\color{#b18f93}i}{\color{#b9a594}n}{\color{#a09691}k~}{\color{#a9a49b}o}{\color{#aa9e96}f~}{\color{#ab9792}h}{\color{#a28c87}e}{\color{#a38085}r.}}$  <br>
+$\textsf{{\color{#96747e} ㅤㅤ   ㅤㅤ ㅤㅤ ... a}{\color{#8e687f}l}{\color{#8b627a}w}{\color{#886485}a}{\color{#784c84}y}{\color{#6e547c}s~}{\color{#79506c}t}{\color{#6f4f68}h}{\color{#5c4554}i}{\color{#654d56}n}{\color{#6e5150}k~}{\color{#6c4947}o}{\color{#7b5047}f~}{\color{#7a514b}h}{\color{#6c544f}e}{\color{#705759}r.}}$ <br>
       </td>
     </tr>
   </table> 
