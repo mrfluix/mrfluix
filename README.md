@@ -11,6 +11,7 @@
 
 $\textsf{{\color{#784c84}A}{\color{#886485}l}{\color{#8b627a}l~}{\color{#a5828f}t}{\color{#9f7f85}h}{\color{#a18b8e}i}{\color{#b18f93}s~}{\color{#b9a594}g}{\color{#a09691}r}{\color{#a9a49b}i}{\color{#aa9e96}e}{\color{#ab9792}f~}{\color{#a28c87}u}{\color{#a38085}s}{\color{#96747e}e}{\color{#8e687f}d~}{\color{#8b627a}t}{\color{#886485}o~}{\color{#784c84}b}{\color{#6e547c}e~}{\color{#79506c}l}{\color{#6f4f68}o}{\color{#5c4554}v}{\color{#654d56}e.}}$ <br>
 
+<div align = center>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&duration=2000&pause=4000&color=3E3466&center=true&repeat=false&lines=I+don't+know+what+to+do+anymore.+;I'm+at+my+wit's+end.;Maybe+I+should+just+leave+this+city.;It's+too+much+having+to+look+after+these+guys.;It's+just...too+much.;+I+had+nobody+when+I+came+here.;I+can+live+with+nobody+again." alt="Typing SVG" /></a>
   
 <div align = center>
@@ -81,8 +82,9 @@ btw i dont ship DaD!Thomflux SPECIFICALLY because it feels ?? wrong? idk theyre 
  
 [prns.cc](https://pronouns.cc/@cappytain) [strawpage](https://theconspiracy.straw.page/) <br>
 
+<div align = center> 
 $\textsf{{\color{#784c84}D}{\color{#886485}o}{\color{#8b627a}n}{\color{#a5828f}'t~}{\color{#9f7f85}t}{\color{#a18b8e}h}{\color{#b18f93}i}{\color{#b9a594}n}{\color{#a09691}k~}{\color{#a9a49b}o}{\color{#aa9e96}f~}{\color{#ab9792}h}{\color{#a28c87}e}{\color{#a38085}r.}}$  <br>
-$\textsf{{\color{#96747e} ㅤㅤ   ㅤㅤ ㅤㅤ ... a}{\color{#8e687f}l}{\color{#8b627a}w}{\color{#886485}a}{\color{#784c84}y}{\color{#6e547c}s~}{\color{#79506c}t}{\color{#6f4f68}h}{\color{#5c4554}i}{\color{#654d56}n}{\color{#6e5150}k~}{\color{#6c4947}o}{\color{#7b5047}f~}{\color{#7a514b}h}{\color{#6c544f}e}{\color{#705759}r.}}$    ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤ<br>
+$\textsf{{\color{#96747e} ㅤㅤ   ㅤㅤ  ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ  ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ     ㅤㅤ ... a}{\color{#8e687f}l}{\color{#8b627a}w}{\color{#886485}a}{\color{#784c84}y}{\color{#6e547c}s~}{\color{#79506c}t}{\color{#6f4f68}h}{\color{#5c4554}i}{\color{#654d56}n}{\color{#6e5150}k~}{\color{#6c4947}o}{\color{#7b5047}f~}{\color{#7a514b}h}{\color{#6c544f}e}{\color{#705759}r.}}$    ㅤㅤ  ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ     ㅤ<br>
       </td>
     </tr>
   </table> 
