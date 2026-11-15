@@ -38,8 +38,6 @@ $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\
 <br>
 
    ㅤ<br>
-   ㅤ <br>
-
 
 <img width="20" height="20" alt="1000051578" src="https://github.com/user-attachments/assets/72c68e4b-a039-4da6-8ea2-2377a67a3f9d" /> $\textsf{{\color{#784c84}ㅤㅤc}{\color{#886485}a}{\color{#8b627a}p}{\color{#a5828f}p}{\color{#9f7f85}y}{\color{#a18b8e}(}{\color{#b18f93}t}{\color{#b9a594}a}{\color{#a09691}i}{\color{#a9a49b}n}{\color{#aa9e96})ㅤ}}$ $\textsf{{\color{#ab9792}c}{\color{#a28c87}a}{\color{#a38085}n}{\color{#96747e}d}{\color{#8e687f}i}{\color{#8b627a}e~}}$ $\textsf{{\color{#886485}ㅤf}{\color{#784c84}l}{\color{#6e547c}u}{\color{#79506c}i}{\color{#6f4f68}x}{\color{#5c4554}o}{\color{#654d56}n~}}$ㅤㅤ <img width="20" height="20" alt="tumblr_7cafca841172adfe905b8339c5e83742_bde15e38_75" src="https://github.com/user-attachments/assets/039e224b-d01d-40ef-9e2e-c9cb5c33176f" /><br>
 $\textsf{{\color{#784c84}h}{\color{#886485}e}{\color{#8b627a}/}{\color{#a5828f}t}{\color{#9f7f85}h}{\color{#a18b8e}e}{\color{#b18f93}y}{\color{#b9a594}/}{\color{#a09691}s}{\color{#a9a49b}h}{\color{#aa9e96}e}}$  ㅤ<img width="18" height="18" alt="tumblr_478f828c5b5274bf80f5470458781fff_35475ee2_75" src="https://github.com/user-attachments/assets/2e48c952-3d3e-4a6d-93df-9439aa6ad1d6" />ㅤ $\textsf{{\color{#ab9792}b}{\color{#a28c87}i}{\color{#a38085}g}{\color{#96747e}e}{\color{#8e687f}n}{\color{#8b627a}d}{\color{#886485}e}{\color{#784c84}r}}$ ㅤㅤ $\textsf{{\color{#654d56}m}{\color{#6e5150}i}{\color{#6c4947}n}{\color{#7b5047}o}{\color{#7a514b}r}}$   <br>
