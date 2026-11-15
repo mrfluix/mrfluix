@@ -37,8 +37,8 @@ $\textsf{{\color{#b18f93}ㅤㅤㅤ—ㅤ}{\color{#b9a594}T}{\color{#a09691}o~}{\
 <img src="https://file.garden/alyQLjsPPBIhyNXM/ezgif-25acaf344dfd3637.png" />  
 <br>
 
-
-
+   ㅤ<br>
+   ㅤ <br>
 
 
 <img width="20" height="20" alt="1000051578" src="https://github.com/user-attachments/assets/72c68e4b-a039-4da6-8ea2-2377a67a3f9d" /> $\textsf{{\color{#784c84}ㅤㅤc}{\color{#886485}a}{\color{#8b627a}p}{\color{#a5828f}p}{\color{#9f7f85}y}{\color{#a18b8e}(}{\color{#b18f93}t}{\color{#b9a594}a}{\color{#a09691}i}{\color{#a9a49b}n}{\color{#aa9e96})ㅤ}}$ $\textsf{{\color{#ab9792}c}{\color{#a28c87}a}{\color{#a38085}n}{\color{#96747e}d}{\color{#8e687f}i}{\color{#8b627a}e~}}$ $\textsf{{\color{#886485}ㅤf}{\color{#784c84}l}{\color{#6e547c}u}{\color{#79506c}i}{\color{#6f4f68}x}{\color{#5c4554}o}{\color{#654d56}n~}}$ㅤㅤ <img width="20" height="20" alt="tumblr_7cafca841172adfe905b8339c5e83742_bde15e38_75" src="https://github.com/user-attachments/assets/039e224b-d01d-40ef-9e2e-c9cb5c33176f" /><br>
