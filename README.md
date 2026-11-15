@@ -148,7 +148,7 @@ no like seriously i don't know why people are scared of me PLEASE IM FRIENDLIST 
 
 cant do these freaking trends CASUE EVERYONE SAYS THE SAME DAMN THING
 
-
+$\textsf{{\color{#784c84}c}{\color{#886485}a}{\color{#8b627a}p}{\color{#a5828f}p}{\color{#9f7f85}y}{\color{#a18b8e}(}{\color{#b18f93}t}{\color{#b9a594}a}{\color{#a09691}i}{\color{#a9a49b}n}{\color{#aa9e96}n~}{\color{#ab9792}c}{\color{#a28c87}a}{\color{#a38085}n}{\color{#96747e}d}{\color{#8e687f}i}{\color{#8b627a}e~}{\color{#886485}f}{\color{#784c84}l}{\color{#6e547c}u}{\color{#79506c}i}{\color{#6f4f68}x}{\color{#5c4554}o}{\color{#654d56}n~}}$
 
 <br>
 
